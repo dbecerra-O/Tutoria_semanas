@@ -7,7 +7,7 @@ Reconocer los patrones de miedo, perfeccionismo o inseguridad que te han frenado
 
 ## 💌 Parte 1: Carta desde la compasión
 
-### Querido/a [Tu nombre],
+### Querido Diego,
 
 Deja de autosabotearte porque mereces intentarlo sin miedo... 🌟
 
